@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Zhaoling-Zou
-- 👀 I’m interested in badminton
+- 👀 I’m interested in badminton, running, board games, Sanda
 - 🌱 I’m currently learning climbing
 - 💞️ I’m looking to collaborate on something fun
 - 📫 How to reach me : zhaolingzou2@gmail.com
